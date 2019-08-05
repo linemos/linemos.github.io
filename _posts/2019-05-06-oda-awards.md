@@ -14,7 +14,7 @@ For mange minoriterer til mindre tekniske stillinger i løpet av sine første å
 
 Mangfold handler om mer enn kvinneandel. Det handler også om annen kjønnsidentitet, LGBT+, psykiske og fysiske hemninger, språk, hudfarge, bakgrunn, religion, alder, erfaringer, interesser mm...
 
-Vi trenger arbeidsplasser med kultur og miljø hvor det å være minoritet betyr at du må føle deg annerledes enn resten. Hvor vi ikke er for like hverandre.
+Vi trenger arbeidsplasser med kultur og miljø hvor det å være minoritet ikke betyr at du må føle deg annerledes enn resten. Hvor vi ikke er for like hverandre.
 
 Det er ikke godt nok å rektuttere minoriteter hvis ingen sitter som utvikler etter 5 år. Da gjør vi noe feil.
 Da klarer vi ikke bli mangfoldige og da feiler vi i våre samfunnsoppdrag, i å levere løsninger som ikke diskriminerer eller forsterker ulikheter i samfunnet.
