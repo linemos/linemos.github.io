@@ -1,6 +1,6 @@
 ---
 layout: post
-tile: "Ansiktsgjennkjenning og fotball"
+title: "Ansiktsgjennkjenning og fotball"
 ---
 
 I Danmark har fotballklubben Brøndby IF innført ansiktsgjenkjenning for å identifisere og utestenge uønskede tilskuere på sine hjemmekamper. Datatilsynet har godkjent bruken av overvåkning hos den private aktøren. 
