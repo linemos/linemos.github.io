@@ -1,6 +1,6 @@
 ---
 layout: post
-tile: "Vi må aktivt jobbe for en mangfoldig IT-bransje"
+title: "Vi må aktivt jobbe for en mangfoldig IT-bransje"
 ---
 ![Photo by Chris Barbalis on Unsplash](https://images.unsplash.com/photo-1503416858304-41dc04946371?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=1935&q=80)
 
