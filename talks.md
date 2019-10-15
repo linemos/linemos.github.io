@@ -6,7 +6,7 @@ permalink: /talks/
 
 ## Recorded talks
 
-* [NAIS applikasjonsplattform!](https://www.pscp.tv/w/1BdGYepWLbgGX?t=1m13s) på JavaZone 2019
+* [NAIS applikasjonsplattform!](https://vimeo.com/360816415) på JavaZone 2019
 
 * [Experiences From Running Istio in a K8s Production Environment](https://www.youtube.com/watch?v=5qrR01n9JyY&list=PLj6h78yzYM2OK087kzLgc4jTPVbZjuNfs&index=102&t=1s) with Johnny Horvi at KubeCon + CloudNativeCon Shanghai 2018
 
