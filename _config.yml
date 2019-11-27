@@ -17,6 +17,10 @@ minima:
     twitter: linemoseng
     github:  linemos
 
+instagram_username: linemoseng
+twitter_username: linemoseng
+github_username: linemos
+
 # Build settings
 markdown: kramdown
 theme: minima
