@@ -4,9 +4,7 @@ title: Talks
 permalink: /talks/
 ---
 
-## Recorded talks
-
-* ![Hun, han, hen - hvordan få de til å bli min venn? Krasjkurs i inkluderende språk](hun-han-hen-sofaprat.m4a) på [Mangfold i mai 2022](https://navikt.github.io/mangfold-i-mai/)  
+## Recorded talks 
 
 * [NAIS applikasjonsplattform!](https://vimeo.com/360816415) på JavaZone 2019
 
