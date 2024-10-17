@@ -9,5 +9,5 @@ permalink: /about/
     doing Kubernetes stuff at our open source platform [nais.io](http://nais.io)
 * Volunteering at [Lær Kidsa Koding](https://kidsakoder.no) leading the Norwegian Hour of Code, [Kodetimen](https://kodetimen.no)
 * Doing some public speaking
-* You should follow me on Twitter [@LineMoseng](https://twitter.com/LineMoseng)
+* You should follow me on Twitter [@mos_line](https://twitter.com/mos_line)
 * ⚽️🏒 Vålerenga 💙
