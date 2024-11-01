@@ -8,7 +8,7 @@ Vi ser i dag stickers, tifoer, sanger som er AI-genererte. Framover vil vi nok s
 
 1. AI tar feil.
 
-Hvis du spør en de store AI-ene om hvor mange steiner du burde spise hver dag får du anbefalt 1 stein per dag. Spør om hvor mange r-er det er i ordet "strawberry" og den svarer 2. AI-en er ikke lagd for å være en fasit.
+Hvis du spør en de store AI-ene om hvor mange steiner du burde spise hver dag får du anbefalt 1 stein per dag. Spør om hvor mange r-er det er i ordet "strawberry" og den svarer 2. Videre sier den at 9.11 er større en 9.9.
 
 Bildegenereringer tar også feil. Den lager en hest som er halvt bil når du ber den lage en "knight rider". Den smelter kropper sammen når, har feil antall fingre og når du ber den lage bilder av laks i en elv får du laksefileter i stedet for hel fisk.
 
@@ -26,4 +26,6 @@ Greit nok at vi driter i opphavsretten til svære kommersielle giganter, men det
 
 Kunstig intelligens har et stort, og voldsomt voksende, klimaavtrykk. Et regnestykke sier at ett AI-generert bilde i dag bruker like mye energi som å lade opp en mobilen.
 
-Jeg veit at det finnes mange som synes AI er fett og vil fortsatte å bruke AI til både motiver og tekst. Det er ikke nytt at teknologi er kontroversielt i kulturen. Kunstmiljøene var lite begeistra over programmerert kunst på 60-tallet og kunstnere og kunstkritikere river seg i håret over at et AI-genert verk ble solgt for 4,6 mill i sommer. Jeg kunne sikkert prata om scammen krypto-kunst her også, men lar den ligge.
+Det er på ingen måte nytt at teknologi er kontroversielt i kulturen. Maskingenerert kunst på 60-tallet ble blant annet kritisert for å ikke være ekte kunst. NFT(blockchain)-kunst er solgt for milliarder, AI-generte verker selges for enorme summer i dag og kritiseres for blant annet punktene jeg har lista opp i denne tråden.
+
+Det finnes mange som synes kunstig intelligens er fett, eller bare letteste vei til mål. Mange vil fortsette å bruke AI for å lage innhold for supportergruppa si. Den kampen er nok for alltid tapt. Går du mot normen i en kultur er det greit å ha litt reflektert rundt hvorfor og hva kritikken går ut på.
