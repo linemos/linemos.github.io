@@ -14,11 +14,11 @@ url: "https://moseng.org" # the base hostname & protocol for your site, e.g. htt
 minima:
   social_links:
     instagram: linemoseng
-    twitter: linemoseng
+    bluesky: linemos.com
     github:  linemos
 
 instagram_username: linemoseng
-twitter_username: linemoseng
+bluesky_username: linemos.com
 github_username: linemos
 
 # Build settings
