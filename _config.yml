@@ -17,10 +17,6 @@ minima:
     bluesky: linemos.com
     github:  linemos
 
-instagram_username: linemoseng
-bluesky_username: linemos.com
-github_username: linemos
-
 # Build settings
 markdown: kramdown
 theme: minima
