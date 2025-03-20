@@ -6,6 +6,8 @@ permalink: /talks/
 
 ## Recorded talks 
 
+* [Kontinuerlige leveranser og velvære med DevOps-capabilities](https://vimeo.com/1006183778) på JavaZone 2024
+
 * [Hun, han, hen - hvordan få de til å bli min venn? Krasjkurs i inkluderende språk](https://vimeo.com/showcase/9805219/video/748302090) med Agnethe Stensrud Heggelund på JavaZone 2022
 
 * [Hun, han, hen - hvordan få de til å bli min venn? Krasjkurs i inkluderende språk](https://www.youtube.com/watch?v=Ya-qSreE_vs) med Agnethe Stensrud Heggelund på [Mangfold i mai 2022](https://navikt.github.io/mangfold-i-mai/)
