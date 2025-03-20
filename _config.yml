@@ -13,9 +13,15 @@ url: "https://moseng.org" # the base hostname & protocol for your site, e.g. htt
 
 minima:
   social_links:
-    - { platform: github,  user_url: "https://github.com/linemos" }
-    - { platform: bluesky, user_url: "https://bsky.app/profile/linemos.com" }
-    - { platform: instagram, user_url: "https://www.instagram.com/linemoseng/" }
+    - title: github
+      icon: github
+      url: "https://github.com/linemos"
+    - title: bluesky
+      icon: bluesky
+      url: "https://bsky.app/profile/linemos.com"
+    - title: instagram
+      icon: instagram
+      url: "https://www.instagram.com/linemoseng/"
 
 # Build settings
 markdown: kramdown
