@@ -80,11 +80,11 @@ Tilbake i Yerevan tok vi en uendelig lang lokalbusstur i ettermiddagsrushet opp 
 
 Dagen etter sjekka vi ut fra hotellet og kjørte nordover igjen for å dra til vindistriktet i Georgia. På turen stakk vi innom et forlatt observatorie fra sovjettida, ROT-54. Vi betalte en sum for å kunne kjøre inn på området, og ellers var det stod bygninger og teleskop og forfalt, det traska kyr rundtomkring både ute og inne i de forlatte bygningene og det var ingen informasjonsplakater eller ansatte på stedet. Ganske så kul opplevelse. Siden vi var der idet det åpna fikk vi også stedet helt for oss selv i starten, som forsterka effekten av det forlatte og falleferdige stedet.
 
-![](https://lh3.googleusercontent.com/pw/AP1GczNnESp0g_E_MuVELwJQrByHwybOX5vViIBcIrHGM48ggiC6SEqzhZcMz1brQ-Y8Ew73TXHmpyWec4paCt8DHaktyMV3wrSHe2-LTPmlomI20vn6FJb4fv7lYDzq7FCmeWZK_VL5CczjoHG1irPUiqL8-g=w2298-h1724-s-no-gm?authuser=0)
+![Meg som glor ned et gammelt teleskop](https://lh3.googleusercontent.com/pw/AP1GczNnESp0g_E_MuVELwJQrByHwybOX5vViIBcIrHGM48ggiC6SEqzhZcMz1brQ-Y8Ew73TXHmpyWec4paCt8DHaktyMV3wrSHe2-LTPmlomI20vn6FJb4fv7lYDzq7FCmeWZK_VL5CczjoHG1irPUiqL8-g=w2298-h1724-s-no-gm?authuser=0)
 
-![](https://lh3.googleusercontent.com/pw/AP1GczMDd7JkGTGhs3ZcloLScajVNagN8QB_WakSKD4Qlx4YTuzqPWhz58pNuCUtr-CRUjVMnh3wynApMHUH0ZoqxoqlFcmFHWcFAfMXXXykDrExXIOMQUHwcoK2kf5DFMff0vuFh_-ECte7-V8O2Yxeb8smXw=w2298-h1724-s-no-gm?authuser=0)
+![Christian og meg foran gamle kontrollbord](https://lh3.googleusercontent.com/pw/AP1GczMDd7JkGTGhs3ZcloLScajVNagN8QB_WakSKD4Qlx4YTuzqPWhz58pNuCUtr-CRUjVMnh3wynApMHUH0ZoqxoqlFcmFHWcFAfMXXXykDrExXIOMQUHwcoK2kf5DFMff0vuFh_-ECte7-V8O2Yxeb8smXw=w2298-h1724-s-no-gm?authuser=0)
 
-| ![](https://lh3.googleusercontent.com/pw/AP1GczMQES8Ko5V1dsgoIDiZx_WaNGgijhgd1SCMt6oRtElzfCqZE1yYaXsOm_JLW1CcKoGznQJQbf-313IbTDziR-hwp1ybJlu4-woAII4tt_ZRqtfxXdI94ikANkDK443-fh7zILqkzNGO2lFvD_hFJJxOeA=w1294-h1724-s-no-gm?authuser=0) | ![](https://lh3.googleusercontent.com/pw/AP1GczOPvyAeM7TmHT1BiVeTi7hJZbpz8wLYCkxVhk9zBLtkWaFn88KR5nkSYYBEJRnmKsaQuJK90b45Hlgo1VAL7JPol1wd38Ddg2P5wGiPgVE6UsqnGsMStedGiyk9OyZq7OgqESfSWPzG09xoNUSnnEnBvA=w1294-h1724-s-no-gm?authuser=0) |
+| ![Meg ved et falleferdig trappeløp](https://lh3.googleusercontent.com/pw/AP1GczMQES8Ko5V1dsgoIDiZx_WaNGgijhgd1SCMt6oRtElzfCqZE1yYaXsOm_JLW1CcKoGznQJQbf-313IbTDziR-hwp1ybJlu4-woAII4tt_ZRqtfxXdI94ikANkDK443-fh7zILqkzNGO2lFvD_hFJJxOeA=w1294-h1724-s-no-gm?authuser=0) | ![Enda et falleferdig teleskop](https://lh3.googleusercontent.com/pw/AP1GczOPvyAeM7TmHT1BiVeTi7hJZbpz8wLYCkxVhk9zBLtkWaFn88KR5nkSYYBEJRnmKsaQuJK90b45Hlgo1VAL7JPol1wd38Ddg2P5wGiPgVE6UsqnGsMStedGiyk9OyZq7OgqESfSWPzG09xoNUSnnEnBvA=w1294-h1724-s-no-gm?authuser=0) |
 
 Helt nord i Armania kjørte vi også gjennom det som folk på internett kaller Armenias Mordor, Alaverdi. Det er en industriby i en dyp dal med mye forfall og forlatte bygg. Bildene våre gjør ikke Mordor-kallenavnet rettferdighet, men gir allikevel et inntrykk.
 
