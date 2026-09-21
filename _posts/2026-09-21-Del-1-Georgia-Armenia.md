@@ -89,3 +89,5 @@ Dagen etter sjekka vi ut fra hotellet og kjørte nordover igjen for å dra til v
 Helt nord i Armania kjørte vi også gjennom det som folk på internett kaller Armenias Mordor, Alaverdi. Det er en industriby i en dyp dal med mye forfall og forlatte bygg. Bildene våre gjør ikke Mordor-kallenavnet rettferdighet, men gir allikevel et inntrykk.
 
 | ![Bygg i Alaverdi](https://lh3.googleusercontent.com/pw/AP1GczOrHgeBqkPLVtEHdnqrNHcWx_eQI19MtHKBzl7MEVkpvwVChFeL5BjiD1aGUesXXYYV1_bV__knKoq1Ri7uLRm25CaQD_QxqDm_PwYSuZoudV2Fb5Usi1IN6RmS2D9UNbcH52QO7YDpNfvh9BoBtwrGXQ=w1294-h1724-s-no-gm?authuser=0) | ![En gammel taubane](https://lh3.googleusercontent.com/pw/AP1GczNdSRlZNWk9_W1u8g1UEpM_jrE580dfFsg3C_oxCbbHYrs9GhpLuVQAt8HGSyGx6aJFSdE7L8v2h4f9JcM8MsTTEqNXN2M2W88SQHUUV492iCdCNRqmyxdvDYNeMiJJJbS9bjRV5Gmwp4MEESugSpNK2w=w1080-h1440-s-no-gm?authuser=0) |
+
+Å krysse begge grensestasjonene på grensa tilbake til Georgia tok heldigvis bare en halvtime, mot ca 3 timer motsatt vei. Vi hadde noen gode 2.5 timer igjen å kjøre denne dagen.
