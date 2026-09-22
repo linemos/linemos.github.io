@@ -29,9 +29,9 @@ td img {
 
 ## Vindistriktet Kakheti
 
-Vi er tilbake i Georgia. Vi stod mellom å kjøre tilbake til Tbilisi, for å kunne ta dagsturer til vindistriktet og dagen etter se Norge-England-kampen på storskjerm i sentrum, men endte opp med at det egentlig var mer fristende å bo i vindistriktet. Det blir mange nok timer i bil som det er. I en trafikk preget av kaotiske forbikjøringer, dyr både i veibanen og på midtrabatten, parkeringer og søppeldunker stående midt i høyrefeltet i tide og utide (mest det siste) kjørte vi nord-østover. Vi booket på veien et hotell helt på toppen av byen Telavi, den største byen i vinregionen Kakheti. Dette hotellvalget skulle senere vise seg å være et utrolig godt valg.
+Vi er tilbake i Georgia. Vi stod mellom å kjøre tilbake til Tbilisi, for å kunne ta dagsturer til vingårder og dagen etter se Norge-England-kampen på storskjerm i sentrum, men endte opp med at det egentlig var mer fristende å bo i vindistriktet. Det blir mange nok timer i bil som det er. I en trafikk preget av kaotiske forbikjøringer, dyr både i veibanen og på midtrabatten, parkeringer og søppeldunker stående midt i høyrefeltet i tide og utide (mest det siste) kjørte vi nord-østover, til den største vinregionen som heter Kakheti. Her produseres rundt 70% av all georgisk vin.
 
-Vi kjører over et fjellpass i Tsiv-Gombori og min totale forelskelse i Georgias natur må kanskje sies å begynne her. Den høyeste toppen i denne fjellkjeden er kun 1991 meter over havet, men derfor også grønt og frodig hele veien til toppen.
+Vi kjørte på veien over et fjellpass i Tsiv-Gombori og min totale forelskelse i Georgias natur må kanskje sies å begynne her. Den høyeste toppen i denne fjellkjeden er kun 1991 meter over havet, men derfor også grønt og frodig hele veien til toppen.
 
 ![Utsikt fra Gombori Range](https://lh3.googleusercontent.com/pw/AP1GczOM08HuvpaQNxxauJDqAQEsIpyGSlEP0dlCcsBlzez724bEv7DLLbNMfDqdINHxw9bvRZdBJIltFtcCrnbbgHQqYR2DF3B0G4llSXraKvkg8Vv7VY5GXZWNJmGtVGd1qgWTgTWdfCCxycCULT8_ZwFNYg=w2304-h1494-s-no-gm?authuser=0)
 
@@ -43,9 +43,9 @@ Dagens eneste plan var vingårder og vinsmakinger. Vi hadde ikke meldt oss på n
 
 Shumi Estate er en stor vingård. Vinmarkene deres er ikke på selve gården, men de hadde en god del vinranker på gården allikevel. De driver et profesjonelt opplegg, det bor dyr og fugler på gården, de har en flott hage du kunne spasere rundt og eller sette deg ned for å bestille vin og en matbit, de har resepsjon og en koselig butikk. Vinene var billigere på polet hjemme, så vi kjøpte ingen viner med oss hjem herfra. Vi meldte oss på en tur og avslutta med en smaksplanke med litt ost til.
 
-I Georgia har man funnet de eldste bevisene på vinmaking i verden og vi vet derfor at de her lagde vin for over 8000 år sida. De lager vin i store leirkrukker, kalt qvevri, som de graver ned i jorda for å holde temperaturen stabil og kjølig. Qvevriene er så store at en person kan hoppe nedi de, og det gjør de når de rengjør dem. Personen nedi krukka må synge en sang, for når de begynner å snøvle veit folka oppe at de må hente dem ut.
+I Georgia har man funnet de eldste bevisene på vinmaking i verden og vi vet derfor at de her lagde vin for over 8000 år sida. De lager vin i store leirkrukker, kalt qvevri, som de graver ned i jorda for å holde temperaturen stabil og kjølig. Qvevriene er så store at en person kan hoppe nedi de, og det gjør de når de rengjør dem. Personen nedi krukka må synge en sang, for når de begynner å snøvle veit folka oppe at de må hente dem ut. Vinmakingsmetoden står som immateriell kulturarv på UNESCOs verdensarvliste.
 
-Vinen som lages slik er naturvin, den spontanfermenteres i krukka. Det tilsettes ingenting annet enn druer. Georgiske druetyper er lite kjent eller brukt utafor Georgia og dette kombinert med vinmetoden gjør vinen distinkt. Rødvinene er ofte tunge og hvitvinene er oransje. Vinmakingsmetoden står som immateriell kulturarv på UNESCOs verdensarvliste.
+Vinen som lages slik er naturvin, den spontanfermenteres i krukka. Det tilsettes ingenting annet enn druer. Georgiske druetyper er lite kjent eller brukt utafor Georgia og dette kombinert med vinmetoden gjør vinen distinkt. Rødvinene er ofte tunge og hvitvinene er oransje. Regionen Kakheti har hele 250 større vinprodusenter, i tillegg til tusenvis av produsenter i mindre skala. Georgia har hele 500 lokale druesorter, som er mer enn noe annet land. Mest kjent er Saperavi druen som er en blå drue der også fruktkjøttet er farget, noe som gir en dyp mørk farge. Saperavi vin kalles derfor også «black wine».
 
 Av restene fra vinen, av stilker, steiner og skall lager de et brennevin som heter chacha. Vi prøvde et par typer.Jeg kan fortsatt si at brennevin ikke er min kopp te.
 
