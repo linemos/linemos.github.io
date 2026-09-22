@@ -71,7 +71,9 @@ Vi kryssa en bro over en vannkanal som kvelden før nesten hadde vært helt tør
 
 ![Et lite jordskred over veien](https://lh3.googleusercontent.com/pw/AP1GczNlRTiOo3b2ZJs0RB4h79HsKzqCXr9RzTLg1Y7dWnGY3nkafg72z9ZcpIYB-M9-4LBd9-09Q_o31S_K82LF6CIkhAerptIm_O-GMdkQqBkTlBeL4L9nKz-JLwse2kjYCf0BIIRHxLxCVEiueIT_mV8n6A=w2298-h1724-s-no-gm?authuser=0)
 
-Senere fikk vi høre at nede i sentrum, der vi nettopp hadde gått, hadde vannkanalene gått langt over sine bredder. Ødeleggelsene var store og veier var rast sammen. Vi var letta over å ha kommet ut av det uten større skader enn klissvåte sko og innså vi hadde flaks at vi hadde valgt å bo så høyt i byen at vi ikke ble nevneverdig påvirka.
+Senere fikk vi høre at nede i sentrum, der vi nettopp hadde gått, hadde vannkanalene gått langt over sine bredder. Byen ligger i en åsside, og disse få nattetimene kom det 57,3 mm regn, nedbør tilsvarende 85% av hele månedens normale nedbørsmengde. Det hadde resultert i et flomskred med mye jordmasser og stein som tok med seg veier, broer, biler og flommet inn i mange bygg.
+
+Vi er takknemlige over å ha kommet ut av det uten større skader enn klissvåte sko og letta over at vi valgte å bo så høyt i byen at vi ikke ble nevneverdig påvirka.
 
 ![Bilde av ødeleggelsene i sentrum](https://jam-news.net/app/uploads/2026/07/IMAGE-2026-07-12-165953-819x1024.jpg)
 Bilde lånt fra jam-news.net.
