@@ -27,7 +27,7 @@ td img {
 }
 </style>
 
-I juli var jeg og Christian 16 dager på reise i Georgia og Armenia. To land med mange likheter og mange ulikheter. Begge landene har sine helt egne skriftspråk og sine helt egne ortodokse kirker. De deler en del mat- og vinkulturer, men har også store forskjeller her. Reisen var både nøye planlagt og ganske åpen. Før avreise hadde vi booka første natta på hotell, samt en natt på et flott hotell nord i Kaukasusfjellene. I tillegg til flybilettene hadde vi også booka leiebil for mesteparten av oppholdet. Vi hadde lagd oss et kart over steder å besøke og noen lister over mulige reiseruter. Samtidig hadde vi booka lite for å ha mye fleksibilitet til å se an vær og humør og og tips underveis.
+I juli var jeg og Christian 16 dager på reise i Georgia og Armenia. To land med mange likheter og mange ulikheter. Begge landene har sine helt egne skriftspråk og sine helt egne ortodokse kirker. De deler en del mat- og vinkulturer, men har også store forskjeller. Reisen var både nøye planlagt og ganske åpen. Før avreise hadde vi booka første to nattene på hotell, samt to netter på et flott hotell nord i Kaukasusfjellene. I tillegg til flybilettene hadde vi også booka leiebil for mesteparten av oppholdet. Vi hadde lagd oss et kart over steder å besøke og noen lister over mulige reiseruter. Samtidig hadde vi booka lite for å ha mye fleksibilitet til å se an vær og humør og og tips underveis.
 
 ## Avreise og første dag
 
