@@ -51,7 +51,7 @@ Vi hadde ennå ikke sett Kazbek. Da skyene plutselig forlot toppen av fjellet br
 
 Kazbek er en stratovulkan. Det er det tredje høyeste fjellet i Georgia og det syvende høyeste i Kaukasusfjellene. Det georgiske navnet er Mqinvartsveri. Grensa til Russland går nøyaktig på toppen og skal du bestige dette fjellet fra georgisk side må du en tur ut av landet på veien. Det er ikke en teknisk vanskelig topp å bestige - til å være over 5000 meter og det er to hytter på veien man kan ta inn på. Det er mulig dette må bli et fremtidig feriemål.
 
-Dagens eneste plan var å gå opp til Gergeti Triniti Church, en georgisk-ortodoks kirke fra 1300-tallet som fortsatt er i bruk. Det er kanskje det mest populære turistmålet i området, da det er lett tilgjengelig med buss og bil. Vi valgte å gå turstien fra landsbyen under.
+Vi bestemte oss for å gå opp til Gergeti Triniti Church, en georgisk-ortodoks kirke fra 1300-tallet som fortsatt er i bruk. Det er kanskje det mest populære turistmålet i området, da det er lett tilgjengelig med buss og bil. Vi valgte å gå turstien fra landsbyen under.
 
 Etter en kortere tur opp og en titt på kirka, innså jeg at jeg var for nærme Kazbek til å ikke komme meg lenger opp og få en bedre titt på denne utrolig vakre herren. Det var rett og slett for seint å snu. Vi fortsatte oppover den grønne kammen, forbi hester og kyr. Da punktet jeg hadde sett meg ut var nådd hadde jeg blod på tann. Det var nødvendig å fortsette til videre oppover.
 
