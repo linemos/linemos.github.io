@@ -41,7 +41,7 @@ _Utsikt fra baksida av hotellet._
 ![Utsikt forsida av hotellet](https://lh3.googleusercontent.com/pw/AP1GczMEaKIjxx_U0ajQGvjyua8lpu6KftL-MR-4Gdah1hz69kVgISAfG3jtHui7GQYo9CP5BUh4YTRu31TvbRN5Af-A82vTQ8Ed1HYB_3C61qWF09zlI8bQlXY_Fhqug_QW4Ho2agFt4uI6HLsWLJifaLKHjw=w2304-h1296-s-no-gm?authuser=0)
 _Utsikt fra forsida av hotellet og rommet vårt. Gergeti Trinity Church foran fjellene - Ortsveri til venstre, Kazbek gjemmer seg bak skyene til høyre._
 
-Vi ankom etter 6 timer på veien, ganske slitne av søvnmangel etter nattas forsøk på å oppsøke VM-stemning og møte med ekstremt regnvær. Vi gikk for middag på hotellet etterfulgt av beina høyt på balkongen på rommet med en øl i hånda. Det var nydelig å sitte der utover kveldstimene i frisk fjelluft på rundt 22 grader etter temperaturer oppi 34 grader Kakheti dagen før. Vi var helt oppslukt i det vakre landskapet med høye, snøkledde fjelltopper og grønne fjellsider på alle kanter av dalen.
+Vi ankom etter 5-6 timer på veien, ganske slitne av søvnmangel etter nattas forsøk på å oppsøke VM-stemning og møte med ekstremt regnvær. Vi gikk for middag på hotellet etterfulgt av beina høyt på balkongen på rommet med en øl i hånda. Det var nydelig å sitte der utover kveldstimene i frisk fjelluft på rundt 22 grader etter temperaturer oppi 34 grader Kakheti dagen før. Vi var helt oppslukt i det vakre landskapet med høye, snøkledde fjelltopper og grønne fjellsider på alle kanter av dalen.
 
 Vi hadde ennå ikke sett Kazbek. Da skyene plutselig forlot toppen av fjellet brøt jeg bokstavlig talt ut i et rop. Jeg hadde ikke klart å forestille meg hvor mye høyere dette fjellet ved sida Ortsveri skulle være, selv om jeg var klar over at det var nesten 700 meter høyere. Fjellet ruver så voldsomt over omgivelsene sine og kveldens sakte-TV var herved perfekt. Såpass betatt var jeg at jeg neste morgen stod opp like etter sola for å ta nye bilder og glo mer på dette fjellet i morgensola.
 
@@ -53,7 +53,7 @@ Kazbek er en stratovulkan. Det er det tredje høyeste fjellet i Georgia og det s
 
 Vi bestemte oss for å gå opp til Gergeti Triniti Church, en georgisk-ortodoks kirke fra 1300-tallet som fortsatt er i bruk. Det er kanskje det mest populære turistmålet i området, da det er lett tilgjengelig med buss og bil. Vi valgte å gå turstien fra landsbyen under.
 
-Etter en kortere tur opp og en titt på kirka, innså jeg at jeg var for nærme Kazbek til å ikke komme meg lenger opp og få en bedre titt på denne utrolig vakre herren. Det var rett og slett for seint å snu. Vi fortsatte oppover den grønne kammen, forbi hester og kyr. Da punktet jeg hadde sett meg ut var nådd hadde jeg blod på tann. Det var nødvendig å fortsette til videre oppover.
+Etter en kortere tur opp og en titt på kirka, innså jeg at jeg var for nærme Kazbek til å ikke komme meg lenger opp og få en bedre titt på denne utrolig vakre herren. Det var rett og slett for seint å snu. Vi fortsatte oppover den grønne kammen, forbi hester og kyr. Det var forøvrig veldig fint å se så mange frittgående dyr overalt vi hvor reiste i Georgia. Da punktet jeg hadde sett meg ut var nådd hadde jeg blod på tann. Det var nødvendig å fortsette til videre oppover.
 
 Dessverre hadde skyene en date med fjellene og toppene forsvant mer og mer i skyene. Samtidig rulla mørke inn skyer fra fjellene. Vi bestemte oss for å snu på 2624 meter, mens finværet fortsatt var over oss. Det var fortsatt grønt langt oppover i dette frodige langskapet. Hvis vi hadde planlagt litt mer, hatt litt bedre vær eller hatt med mer mat og vann og egna turutstyr, hadde vi nok gått opp til turisthytta. Den ligger på 3014 meter og det både er restaurant og overnattingsmuligheter der. Det får bli neste besøk.
 
@@ -92,6 +92,6 @@ Her er Instagram-storyen min fra denne dagsturen:
   <img src="https://lh3.googleusercontent.com/pw/AP1GczOTT6jZdZEHaysKzSRCXUlW28QI2qZtctOYo8qY5f-77JSCsnEzUhCZ1O0zRc8IXTHmeTt5M4YlhxkCPGYExlBwElcqCP_nntHmYCXdbqHeGUq6rppsEY3JgGfC9Sm1zCUA83TZYaH88Hn_z77RKNboSw=w970-h1724-s-no-gm?authuser=0" alt="Liten katt tatt nærbilde av ovenfra og ser ut som om den smiler beundrende. Tekst på bildet: Avslutter med bilde av meg sett fra Kazbek">
 </div>
 
-Vi avslutter dagen med en tradisjonell middag og oransjevin på hotellet. Her spiste vi blant annet elarji, en slags grøt lagd av maismel og stappa full av den lokale osten sulguni, og lobio, en bønnestuing.
+Vi avslutter dagen med en tradisjonell middag og oransjevin på hotellet. Her spiste vi blant annet elarji, en slags grøt lagd av maismel og stappa full av den lokale osten sulguni, og lobio, en bønnestuing. Deilig mat etter en god dag i fjellet.
 
 ![Elarji og lobio](https://lh3.googleusercontent.com/pw/AP1GczMtoyFV7cMIqsOcQo3BzYIMoSvxpUiRv4gJpcATkHqHyVScluHKWjj3ngR0hyuWTQR83wkZS-jsobO1cU3FaaUwOXcJhMDDa673j7TW9KxUfWbvsDSpDuyOHHJuHx3kZFbXAgGStKyMKEmbZaAvMXar2w=w2206-h1724-s-no-gm?authuser=0)
