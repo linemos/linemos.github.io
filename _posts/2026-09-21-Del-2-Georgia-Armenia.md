@@ -67,11 +67,11 @@ Dette var også kvelden Norge skulle spille VM-kampen mot England, den begynte m
 
 ![Regnvær og storskjerm](https://lh3.googleusercontent.com/pw/AP1GczN75mPepGBZdWeTHvYF046PXouHJiQlKaKtijKHbaJ29NAbE6-al987mceliQa936JVUR1Evjo1kXr5nmR_Tfuk2NCOJMMxByRh0HgrCdarIZDx5a1Re3auq2eJnPvihkh7vepFAEH3eUFLo4XEJ2BJ2w=w1294-h1724-s-no-gm?authuser=0)
 
-Vi kryssa en bro over en vannkanal som kvelden før nesten hadde vært helt tørr. Den var nå overfylt med vann som fosset i et livsfarlig tempo og slo opp på broa. Litt skrekkslagne kom vi oss videre og slitne vassa vi oppover til toppen av byen hvor hotellet lå, med vann godt oppå anklene. Dagen etter kom vi til et mindre overfylt frokostbord. Vi fikk vite at all gass og strøm hadde gått etter regnværet. Vi skulle kjøre videre nordover og var bekymra for veiene. Heldigvis var det båre gått noen små skred over veien på vei ut av byen for oss.
+Vi kryssa en bro over en vannkanal som kvelden før nesten hadde vært helt tørr. Kanalen var nå overfylt med vann som fosset i et livsfarlig tempo og slo opp på broa. Litt skrekkslagne kom vi oss videre og slitne vassa vi oppover til toppen av byen hvor hotellet lå, med vann godt oppå anklene. Dagen etter kom vi til et mindre overfylt frokostbord. Vi fikk vite at all gass og strøm hadde gått etter regnværet. Vi skulle kjøre videre nordover og var bekymra for veiene. Heldigvis var det båre gått noen små skred over veien på vei ut av byen for oss.
 
 ![Et lite jordskred over veien](https://lh3.googleusercontent.com/pw/AP1GczNlRTiOo3b2ZJs0RB4h79HsKzqCXr9RzTLg1Y7dWnGY3nkafg72z9ZcpIYB-M9-4LBd9-09Q_o31S_K82LF6CIkhAerptIm_O-GMdkQqBkTlBeL4L9nKz-JLwse2kjYCf0BIIRHxLxCVEiueIT_mV8n6A=w2298-h1724-s-no-gm?authuser=0)
 
-Senere fikk vi høre at nede i sentrum, der vi nettopp hadde gått, hadde vannkanalene gått langt over sine bredder. Byen ligger i en åsside, og disse få nattetimene kom det 57,3 mm regn, nedbør tilsvarende 85% av hele månedens normale nedbørsmengde. Det hadde resultert i et flomskred med mye jordmasser og stein som tok med seg veier, broer, biler og flommet inn i mange bygg.
+Senere fikk vi høre at nede i sentrum, der vi hadde gått samme natt, hadde vannkanalene gått langt over sine bredder. Byen ligger i en åsside, og disse få nattetimene kom det 57,3 mm regn, nedbør tilsvarende 85% av hele månedens normale nedbørsmengde. Det hadde resultert i et flomskred med mye jordmasser og stein som tok med seg veier, broer, biler og flommet inn i mange bygg.
 
 Vi er takknemlige over å ha kommet ut av det uten større skader enn klissvåte sko og letta over at vi valgte å bo så høyt i byen at vi ikke ble nevneverdig påvirka.
 
