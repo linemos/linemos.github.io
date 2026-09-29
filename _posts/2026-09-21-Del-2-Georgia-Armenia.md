@@ -3,7 +3,7 @@ layout: post
 title: "Del 2: Vin og ekstremvær"
 date: 2026-09-21
 next_post_url: "2026/09/23/Del-3-Georgia-Armenia.html"
-next_post_title: "Del 3: Kaukasus og fjellet Kazbek
+next_post_title: "Del 3: Kaukasus og fjellet Kazbek"
 ---
 
 <style>
@@ -78,4 +78,4 @@ Senere fikk vi høre at nede i sentrum, der vi hadde gått samme natt, hadde van
 Vi er takknemlige over å ha kommet ut av det uten større skader enn klissvåte sko og letta over at vi valgte å bo så høyt i byen at vi ikke ble nevneverdig påvirka.
 
 ![Bilde av ødeleggelsene i sentrum](https://jam-news.net/app/uploads/2026/07/IMAGE-2026-07-12-165953-819x1024.jpg)
-Bilde lånt fra jam-news.net.
+_Bilde lånt fra jam-news.net._
