@@ -44,10 +44,30 @@ Lang tid i lenestolen ble det derimot ikke. På kvelden skulle vi på fotballkam
 
 Neste stopp var Mikheil Meskhi Stadium, en stilig stadion som ligger inntil åskanten i bydelen. Mikheil Meskhi var en berømt georgisk fotballspiller som var aktiv på 50- og 60-tallet. Stadion blir brukt til både fotball og rugby-kamper. Tribunen er oval, slak og det er kun tak over deler av hovedtribunen. Stadion tar 27 223 tilskuere, nesten like mye som Ullevaal, selv om den visuelt gir inntrykk for å ha lavere kapasitet.
 
-Denne dagen spilte hjemmelaget FC Iberia 1999 mot FC Flora Tallinn i kvalik til Champions League. Første kampen i Estland hadde endt 2-3 i georgernes favør og denne kampen endte 2-2, som sendte dem til andre kvalikrunde (hvor de ble slått ut av SK Slovan Bratislava). En morsom kamp med mer tribuneliv enn Alashkert-kampen vi så i Jerevan. Vi ble spurt noen ganger om vi var fra Estland mens vi stod i kø inn til hjemmetribunen, men Norge var heldigvis godkjent svar og vi slapp å flytte oss over til bortefansen. Bortefansen var forøvrig godt adskilt fra resten av stadion, der de var plassert på et felt bak høye gjerder og med ca dobbelt så mange vakter og politi rundt som det var tilskuere. Vi anslo at bortefansen var rundt 35 personer, og noen av de mest aktive av dem var barn. Totalt antall tilskuere var 2017 personer.
+Denne dagen spilte hjemmelaget FC Iberia 1999 mot FC Flora Tallinn i kvalik til Champions League. Første kampen i Estland hadde endt 2-3 i georgernes favør og denne kampen endte 2-2, som sendte dem til andre kvalikrunde (hvor de ble slått ut av SK Slovan Bratislava). En morsom kamp med mer tribuneliv enn Alashkert-kampen vi så i Jerevan. Vi ble spurt noen ganger om vi var fra Estland mens vi stod i kø inn til hjemmetribunen, men Norge var heldigvis godkjent svar og vi slapp å flytte oss over til bortefansen. Bortefansen var forøvrig godt adskilt fra resten av stadion, der de var plassert på et felt bak høye gjerder og med ca dobbelt så mange vakter og politi rundt som det var tilskuere. Vi anslo at bortefansen var rundt 35 personer, og noen av de mest aktive av dem var barn. Totalt antall tilskuere var 4506ß personer.
 
 Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen, alle sammen kvalifisering til en av de tre Europa-turneringene. Det ble ikke flere enn disse to, den i Jerevan og denne her i Tbilisi. Uansett veldig gøy å få sjekka av to nye land på Futbology-appen. Å se fotballkamper i andre land vi besøker er for oss en hobby som tilsvarer hvordan andre drar på teater og konserter når de er på reise. Det er ikke bare fotballen som er interssant, det er også å se forskjellige stadioner. Stadionene kan være kjedelige, voldsomme, små, spektakulære, brutale. Mest av alt er det en fin måte å oppleve stedene vi besøker i et format som folk over hele verden kjenner seg hjemme i - sporten og tribunekulturen. Det er store likheter og store ulikheter både på banen og på tribunen rundt om i verden, og her sitter vi, midt blant folk som bor her, og får ta del i det sammen med dem. Jaja, nok nerding. Vi har fortsatt enda en fotballstadion å besøke på denne turen, men det er fortsatt en ukes tid til.
 
 ![Mikheil Meskhi Stadium sett fra toppen av tribunen](https://lh3.googleusercontent.com/pw/AP1GczPeA798vWBGUaYwQplMCDzULk5OGD3h32mqdvHkIQbt_X0tpf3VrlLuIrpDsIIVmwUhKcUi2JlWOWBKSBKWq1y3t-Lr8TkyjC9RXag-AHGjcNYGWs7SY_IvzYiQypO65guRjBm9JPQB1W3Nt7hhxWnIbA=w2298-h1724-s-no-gm?authuser=0)
 
 ## Gori og Stalin-museet
+
+Etter en overnatting i hovedstaden pakka vi bilen igjen og satte retning vestover. Etter mye om og men hadde vi bestemt oss for å bruke mer tid i Kaukasusfjellene, denne gangen vest for det russisk-okkuperte Sør-Ossetia (vi var på øst-sida sist). Vi stoppa først i Gori, ca 1.5 timer unna. Gori er den fjerde største byen i Georgia og er vel mest kjent for å være hjembyen til Josef Stalin. Midt i byen står huset han vokste opp i og det har nå blitt en del av Stalinmuseet. Vi tok en tur innom dette.
+
+Vi bomma litt på museumsbesøket vårt, da vi gikk aleine rundt. Vi burde hatt en guide. Det var lite infoplakater rundt, og knapt et eneste engelsk ord. Oversettelse i bilder i Google Translate fungerte kun på noen av tekstene rundt i lokalet. Det var ikke veldig lett å få med seg helheten av historiefortellinga selv. På utsida stod barndomshjemmet hans, men det var ikke mulig å gå eller se inn i. Stalins personlige togvogn stod også på utsida, denne kunne vi gå inn i og titte på.
+
+Museet var allikevel interessant, men vi oppfatter at det har fått en kritikk for å glorifisere Stalin og rette lite fokus på at hans forbrytelser mot menneskeheten. En stor statue av Stalin stod på rådhusplassen i byen fram til 20210.
+
+![Meg og togvogna til Stalin](https://lh3.googleusercontent.com/pw/AP1GczP68R-kz7uMKv1IBHFn3y0VPqg28-xW4ucja0AbdeIc1HZJ1bVWWW65un7noHH1iND2cWcR3GAr4YS7vrEqQlZQ09BbQU-c8_kWLj3kW9-dXGCZOKZuPIqHsOQbaY5TZy-wLWBCYNbRgpzJlaC35Qyxwg=w992-h1323-s-no-gm?authuser=0)
+
+## Kutaisi
+
+Etter museumsbesøket kjørte vi videre til Kutaisi, en by et par timer lenger vest. Her hadde vi markert oss noen naturvinbarer vi ville sjekke ut og fant oss et rimelig hotell i sentrum. Kutaisi er blant de eldste kontinuerlig bebodde byene i verden og er i dag den tredje største byen i Georgia. En koselig by som også har mange gamle bygg som i dag bare står og forfaller.
+
+![Ukraina-grafitti i Kutaisi](https://lh3.googleusercontent.com/pw/AP1GczPGISwJ8MX0aZwp2kFUkw10yEPcL5jPOwnaW0fOdot6Glfh95LAOYzWFOjHmfG7zJmSl3JpHfIstNvvvIxTS38SsOSxQOVAvMA09_4MROWfmZ-08fyXHMBddZqAzHeTeZCv0uJIh1c_3PQ7vLE8UcwELA=w1653-h1323-s-no-gm?authuser=0)
+
+![Forfallent bygg](https://lh3.googleusercontent.com/pw/AP1GczNzWn2O02hPrqwfevQ7NWg_9ERYk5s2yXMCJ5IMpsL4sjjcOEqAXHxj3cVYgo9_lTaTGDhzY3MTTvGSQZgSFTHM9DCDc4q48Bp96gLF7OqbA8qIObwrwlZ-DixnmDYOJQgQmPwWxYD9lGcWg1eKRilCyw=w1764-h1323-s-no-gm?authuser=0)
+
+Vi gikk innom litt forskjellige vinbarer og sportsbarer. På den ene vinbaren bodde det en ung kattemor med sine tre små kattunger, som var et hyggelig selskap.
+
+![Vinbar i Kutaisi](https://lh3.googleusercontent.com/pw/AP1GczPHgYEA126BYT-xAVlNe2vb6XwE1WvU60iUBxp57RpAgMcxYXh0ssGtInoMOKDAXNcOODAGf7au8cWwtq-ghFcPH-1YhGj223s9dvc8jRbVB-Mtz5K1uegq7yv7HcV7wXpGIxyJ4PQGmSvOdb82_s5aVw=w1323-h1323-s-no-gm?authuser=0)
