@@ -52,11 +52,13 @@ Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen,
 
 ## Gori og Stalin-museet
 
-Etter en overnatting i hovedstaden pakka vi bilen igjen og satte retning vestover. Etter mye om og men hadde vi bestemt oss for å bruke mer tid i Kaukasusfjellene, denne gangen vest for det russisk-okkuperte Sør-Ossetia (vi var på øst-sida sist). Vi stoppa først i Gori, ca 1.5 timer unna. Gori er den fjerde største byen i Georgia og er vel mest kjent for å være hjembyen til Josef Stalin. Midt i byen står huset han vokste opp i og det har nå blitt en del av Stalinmuseet. Vi tok en tur innom dette.
+Etter en overnatting i hovedstaden pakka vi bilen igjen og satte retning vestover. Etter mye om og men rundt hvordan vi skulle bruke den siste uka av reisen vår, bestemte vi oss for å bruke mer tid i Kaukasusfjellene. Denne gangen var målet fjellene vest for det russisk-okkuperte Sør-Ossetia (vi var på øst-sida sist).
+
+Vi stoppa først i Gori, ca 1.5 timer unna. Gori er nok mest kjent for å være hjembyen til Josef Stalin. Midt i byen står huset han vokste opp i og det har nå blitt en del av Stalinmuseet. Vi tok en tur innom dette.
 
 Vi bomma litt på museumsbesøket vårt, da vi gikk aleine rundt. Vi burde hatt en guide. Det var lite infoplakater rundt, og knapt et eneste engelsk ord. Oversettelse i bilder i Google Translate fungerte kun på noen av tekstene rundt i lokalet. Det var ikke veldig lett å få med seg helheten av historiefortellinga selv. På utsida stod barndomshjemmet hans, men det var ikke mulig å gå eller se inn i. Stalins personlige togvogn stod også på utsida, denne kunne vi gå inn i og titte på.
 
-Museet var allikevel interessant, men vi oppfatter at det har fått en kritikk for å glorifisere Stalin og rette lite fokus på at hans forbrytelser mot menneskeheten. En stor statue av Stalin stod på rådhusplassen i byen fram til 20210.
+Museet har fått kritikk for å glorifisere Stalin og rette lite fokus på at hans forbrytelser mot menneskeheten. En stor statue av Stalin stod faktisk på rådhusplassen i byen fram til 2010, 2 år etter byen ble okkupert av russiske styrker i 12 dager.
 
 ![Meg og togvogna til Stalin](https://lh3.googleusercontent.com/pw/AP1GczP68R-kz7uMKv1IBHFn3y0VPqg28-xW4ucja0AbdeIc1HZJ1bVWWW65un7noHH1iND2cWcR3GAr4YS7vrEqQlZQ09BbQU-c8_kWLj3kW9-dXGCZOKZuPIqHsOQbaY5TZy-wLWBCYNbRgpzJlaC35Qyxwg=w992-h1323-s-no-gm?authuser=0)
 
