@@ -54,7 +54,7 @@ Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen,
 
 Etter en overnatting i hovedstaden pakka vi bilen igjen og satte retning vestover. Etter mye om og men rundt hvordan vi skulle bruke den siste uka av reisen vår, bestemte vi oss for å bruke mer tid i Kaukasusfjellene. Denne gangen var målet fjellene vest for det russisk-okkuperte Sør-Ossetia (vi var på øst-sida sist).
 
-Vi stoppa først i Gori, ca 1.5 timer unna. Gori er nok mest kjent for å være hjembyen til Josef Stalin. Midt i byen står huset han vokste opp i og det har nå blitt en del av Stalinmuseet. Vi tok en tur innom dette.
+Vi stoppa først i Gori, ca 1.5 timer kjøring fra Tbilisi. Gori er nok mest kjent for å være hjembyen til Josef Stalin. Midt i byen står huset han vokste opp i og det har nå blitt en del av Stalinmuseet. Vi tok en tur innom dette.
 
 Vi bomma litt på museumsbesøket vårt, da vi gikk aleine rundt. Vi burde hatt en guide. Det var lite infoplakater rundt, og knapt et eneste engelsk ord. Oversettelse i bilder i Google Translate fungerte kun på noen av tekstene rundt i lokalet. Det var ikke veldig lett å få med seg helheten av historiefortellinga selv. På utsida stod barndomshjemmet hans, men det var ikke mulig å gå eller se inn i. Stalins personlige togvogn stod også på utsida, denne kunne vi gå inn i og titte på.
 
@@ -64,7 +64,7 @@ Museet har fått kritikk for å glorifisere Stalin og rette lite fokus på at ha
 
 ## Kutaisi
 
-Etter museumsbesøket kjørte vi videre til Kutaisi, en by et par timer lenger vest. Her hadde vi markert oss noen naturvinbarer vi ville sjekke ut og fant oss et rimelig hotell i sentrum. Kutaisi er blant de eldste kontinuerlig bebodde byene i verden og er i dag den tredje største byen i Georgia. En koselig by som også har mange gamle bygg som i dag bare står og forfaller.
+Etter museumsbesøket kjørte vi videre til Kutaisi, en by et par timer lenger vest. Her hadde vi markert oss noen naturvinbarer vi ville sjekke ut og fant oss et rimelig hotell i sentrum. Kutaisi er blant de eldste kontinuerlig bebodde byene i verden og er i dag den tredje største byen i Georgia. En koselig by som også har mange gamle bygg som i dag bare står og forfaller, noe vi forsåvidt så over hele Georgia og Armenia.
 
 ![Ukraina-grafitti i Kutaisi](https://lh3.googleusercontent.com/pw/AP1GczPGISwJ8MX0aZwp2kFUkw10yEPcL5jPOwnaW0fOdot6Glfh95LAOYzWFOjHmfG7zJmSl3JpHfIstNvvvIxTS38SsOSxQOVAvMA09_4MROWfmZ-08fyXHMBddZqAzHeTeZCv0uJIh1c_3PQ7vLE8UcwELA=w1653-h1323-s-no-gm?authuser=0)
 
