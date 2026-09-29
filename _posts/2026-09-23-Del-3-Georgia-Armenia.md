@@ -1,7 +1,9 @@
 ---
 layout: post
-title: "Del 3: Kaukasus og fjelltoppen Kazbek"
-date: 2026-09-21
+title: "Del 3: Kaukasus og fjellet Kazbek"
+date: 2026-09-23
+next_post_url: "2026/09/29/Del-4-Georgia-Armenia.html"
+next_post_title: "Del 4: Kaukasus og fjellet Kazbek"
 ---
 
 <style>

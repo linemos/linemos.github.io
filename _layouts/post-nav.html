@@ -1,0 +1,22 @@
+---
+layout: post
+---
+
+{{ content }}
+
+<!-- Manuell Post-navigasjon -->
+{% if page.next_post_url or page.prev_post_url %}
+<div class="post-nav"
+  style="display: flex; justify-content: space-between; margin-top: 40px; padding-top: 20px; border-top: 1px solid #e8e8e8;">
+  <div class="post-nav-prev" style="width: 45%;">
+    {% if page.prev_post_url %}
+    <a href="{{ page.prev_post_url | relative_url }}">&laquo; {{ page.prev_post_title | default: "Forrige post" }}</a>
+    {% endif %}
+  </div>
+  <div class="post-nav-next" style="width: 45%; text-align: right;">
+    {% if page.next_post_url %}
+    <a href="{{ page.next_post_url | relative_url }}">{{ page.next_post_title | default: "Neste post" }} &raquo;</a>
+    {% endif %}
+  </div>
+</div>
+{% endif %}
