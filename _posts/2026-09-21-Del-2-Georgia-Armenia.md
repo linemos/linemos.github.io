@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: post-nav
 title: "Del 2: Vin og ekstremvær"
 date: 2026-09-21
 next_post_url: "2026/09/23/Del-3-Georgia-Armenia.html"

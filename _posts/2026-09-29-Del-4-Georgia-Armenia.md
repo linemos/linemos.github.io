@@ -1,7 +1,7 @@
 ---
-layout: post
+layout: post-nav
 title: "Del 4: Tbilisi, Gori og Kutaisi"
-date: 2026-09-21
+date: 2026-09-29
 ---
 
 <style>
@@ -46,7 +46,7 @@ Neste stopp var Mikheil Meskhi Stadium, en stilig stadion som ligger inntil åsk
 
 Denne dagen spilte hjemmelaget FC Iberia 1999 mot FC Flora Tallinn i kvalik til Champions League. Første kampen i Estland hadde endt 2-3 i georgernes favør og denne kampen endte 2-2, som sendte dem til andre kvalikrunde (hvor de ble slått ut av SK Slovan Bratislava). En morsom kamp med mer tribuneliv enn Alashkert-kampen vi så i Jerevan. Vi ble spurt noen ganger om vi var fra Estland mens vi stod i kø inn til hjemmetribunen, men Norge var heldigvis godkjent svar og vi slapp å flytte oss over til bortefansen. Bortefansen var forøvrig godt adskilt fra resten av stadion, der de var plassert på et felt bak høye gjerder og med ca dobbelt så mange vakter og politi rundt som det var tilskuere. Vi anslo at bortefansen var rundt 35 personer, og noen av de mest aktive av dem var barn. Totalt antall tilskuere var 4506ß personer.
 
-Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen, alle sammen kvalifisering til en av de tre Europa-turneringene. Det ble ikke flere enn disse to, den i Jerevan og denne her i Tbilisi. Uansett veldig gøy å få sjekka av to nye land på Futbology-appen. Å se fotballkamper i andre land vi besøker er for oss en hobby som tilsvarer hvordan andre drar på teater og konserter når de er på reise. Det er ikke bare fotballen som er interssant, det er også å se forskjellige stadioner. Stadionene kan være kjedelige, voldsomme, små, spektakulære, brutale. Mest av alt er det en fin måte å oppleve stedene vi besøker i et format som folk over hele verden kjenner seg hjemme i - sporten og tribunekulturen. Det er store likheter og store ulikheter både på banen og på tribunen rundt om i verden, og her sitter vi, midt blant folk som bor her, og får ta del i det sammen med dem. Jaja, nok nerding. Vi har fortsatt enda en fotballstadion å besøke på denne turen, men det er fortsatt en ukes tid til.
+Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen, alle sammen kvalifisering til en av de tre Europa-turneringene. Det ble ikke flere enn disse to, den i Jerevan og denne her i Tbilisi. Uansett veldig gøy å få sjekka av to nye land på Futbology-appen. Å se fotballkamper i andre land vi besøker er for oss en hobby som tilsvarer hvordan andre drar på teater og konserter når de er på reise. Det er ikke bare fotballen som er interssant, det er også å se forskjellige stadioner. Stadionene kan være kjedelige, voldsomme, små, spektakulære, brutale, retro, falleferdige, hypermoderne. Mest av alt er det en fin måte å oppleve stedene vi besøker i et format som folk over hele verden kjenner seg hjemme i - sporten og tribunekulturen. Det er store likheter og store ulikheter både på banen og på tribunen rundt om i verden, og her sitter vi, midt blant folk som bor her, og får ta del i det sammen med dem. Vi legger merke til forskjeller i tribunesanger, instrumenter, flagg og bannere, engasjementet blant supporterne, om de har tifoer, hvor nedpå eller proft kamparrangementet er, tempo og kvalitet i spillet for å nevne noe. Jaja, nok nerding. Vi har fortsatt én fotballstadion igjen å besøke på denne turen, men det er fortsatt en ukes tid til.
 
 ![Mikheil Meskhi Stadium sett fra toppen av tribunen](https://lh3.googleusercontent.com/pw/AP1GczPeA798vWBGUaYwQplMCDzULk5OGD3h32mqdvHkIQbt_X0tpf3VrlLuIrpDsIIVmwUhKcUi2JlWOWBKSBKWq1y3t-Lr8TkyjC9RXag-AHGjcNYGWs7SY_IvzYiQypO65guRjBm9JPQB1W3Nt7hhxWnIbA=w2298-h1724-s-no-gm?authuser=0)
 
