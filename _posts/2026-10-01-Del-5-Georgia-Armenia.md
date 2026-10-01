@@ -36,11 +36,9 @@ Noe av det første som skjedde var at kartet sendte oss på en "snarvei" langs n
 
 Veien til Mestia, den største landsbyen i området Svaneti, snirkler seg gjennom frodige daler, langs et vannreservoar og en elv. Flere steder var deler av veien rast ut. Det var rester etter steinras så ofte at vi nesten ikke la merke til det lenger. Vi kjørte under overhengende stein langs smale veier med marginal sikring mot utforkjøring ned i den kraftige elva.
 
-![Steinras gjennom strømstolpe](https://lh3.googleusercontent.com/pw/AP1GczPKx9HKiAic4PjsLE7cteWGkZu9FbqirwgOXZx1q9d_NPofR3vFNOgO6dpcXHWm1nvh2jei7uwrpM5EdtKJe6vbd-coV5O9Pa4Dl7LSay5WRp_sdqxcvhj4ZtWsneaJ_Zbhg3wPmYwQhDW4BERkXbFIIw=w992-h1323-s-no-gm?authuser=0)
+| ![Steinras gjennom strømstolpe](https://lh3.googleusercontent.com/pw/AP1GczPKx9HKiAic4PjsLE7cteWGkZu9FbqirwgOXZx1q9d_NPofR3vFNOgO6dpcXHWm1nvh2jei7uwrpM5EdtKJe6vbd-coV5O9Pa4Dl7LSay5WRp_sdqxcvhj4ZtWsneaJ_Zbhg3wPmYwQhDW4BERkXbFIIw=w992-h1323-s-no-gm?authuser=0) | ![Steinblokk henger over veien](https://lh3.googleusercontent.com/pw/AP1GczNsTCUSQsA7Pc3magYiqUoXQTruUYE9F6r_BSO5nI4-nQgHxc1AQMq7_ln8kvXFvhfzKsetlfNizLnpU_WsF0CqGdYjjgAfJB-1ukzBNUf_TbaYlaQgCXBEG_2ZNbcom8C05GgtRfwmX7E5rhmNpxwgKQ=w992-h1323-s-no-gm?authuser=0) |
 
 ![Elv gjennom dalen og høye snødekte fjell bak skyene i det fjerne](https://lh3.googleusercontent.com/pw/AP1GczMF-__-FZSgr6hf1VZSweRucmpU2l2Qrtjk2cY1GzATtkxXA2QB0-gi3YW-SHCVUTM6R1hZvjVbnghswvvi31oQ1Psn9CWF1P9eqWQkBmhiKsX3hybgrqPgzL8P6LBMZrs_3HK2UbaUaE26c-crTbQXRw=w1323-h1323-s-no-gm?authuser=0)
-
-![Steinblokk henger over veien](https://lh3.googleusercontent.com/pw/AP1GczNsTCUSQsA7Pc3magYiqUoXQTruUYE9F6r_BSO5nI4-nQgHxc1AQMq7_ln8kvXFvhfzKsetlfNizLnpU_WsF0CqGdYjjgAfJB-1ukzBNUf_TbaYlaQgCXBEG_2ZNbcom8C05GgtRfwmX7E5rhmNpxwgKQ=w992-h1323-s-no-gm?authuser=0)
 
 ## Vakre Mestia
 
