@@ -30,7 +30,7 @@ td img {
 
 </style>
 
-## Kaukasus del 1 - Kazbegi
+## Kaukasus - Kazbegi
 
 Neste stopp på turen var vakre fjell nord i landet. Vi hadde booka rom lenge før avreise på Rooms Hotel i Stepantsminda i Kazbegi-regionen, et hotell vi fikk anbefalt av mange før vi dro. På veien kjørte vi over Jvari-passet, på smale veier opp bratte bakker med stup rett ned på utsida. Her kjørte også busser og lastebiler, og det hele var ufattelig vakkert og ganske guffent. Ruta går mye av veien langs grensa til det russisk-okkuperte området Sør-Ossetia. Grensa går nøyaktig på toppen av fjelltoppene, noe som grensa også gjør de fleste steder mellom Russland og Georgia. På toppen av passet, på 2200 meter over havet, er det et utkikkspunkt og det russisk-georgiske vennskapsmonumentet. Det ble satt opp i 1983.
 

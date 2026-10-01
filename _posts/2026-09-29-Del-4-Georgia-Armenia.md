@@ -2,6 +2,8 @@
 layout: post-nav
 title: "Del 4: Tbilisi, Gori og Kutaisi"
 date: 2026-09-29
+next_post_url: "2026/10/01/Del-5-Georgia-Armenia.html"
+next_post_title: "Del 5: Kaukasus - Svaneti og Mestia"
 ---
 
 <style>
@@ -48,7 +50,7 @@ Denne dagen spilte hjemmelaget FC Iberia 1999 mot FC Flora Tallinn i kvalik til 
 
 Vi hadde fem fotballkamper på lista over mulige ting å gjøre på denne turen, alle sammen kvalifisering til en av de tre Europa-turneringene. Det ble ikke flere enn disse to, den i Jerevan og denne her i Tbilisi. Uansett veldig gøy å få sjekka av to nye land på Futbology-appen. Å se fotballkamper i andre land vi besøker er for oss en hobby som tilsvarer hvordan andre drar på teater og konserter når de er på reise. Det er ikke bare fotballen som er interssant, det er også å se forskjellige stadioner. Stadionene kan være kjedelige, voldsomme, små, spektakulære, brutale, retro, falleferdige, hypermoderne. Mest av alt er det en fin måte å oppleve stedene vi besøker i et format som folk over hele verden kjenner seg hjemme i - sporten og tribunekulturen. Det er store likheter og store ulikheter både på banen og på tribunen rundt om i verden, og her sitter vi, midt blant folk som bor her, og får ta del i det sammen med dem. Vi legger merke til forskjeller i tribunesanger, instrumenter, flagg og bannere, engasjementet blant supporterne, om de har tifoer, hvor nedpå eller proft kamparrangementet er, tempo og kvalitet i spillet for å nevne noe. Jaja, nok nerding. Vi har fortsatt én fotballstadion igjen å besøke på denne turen, men det er fortsatt en ukes tid til.
 
-![Mikheil Meskhi Stadium sett fra toppen av tribunen](https://lh3.googleusercontent.com/pw/AP1GczPeA798vWBGUaYwQplMCDzULk5OGD3h32mqdvHkIQbt_X0tpf3VrlLuIrpDsIIVmwUhKcUi2JlWOWBKSBKWq1y3t-Lr8TkyjC9RXag-AHGjcNYGWs7SY_IvzYiQypO65guRjBm9JPQB1W3Nt7hhxWnIbA=w2298-h1724-s-no-gm?authuser=0)
+![Mikheil Meskhi Stadium med høye blokker bak](https://lh3.googleusercontent.com/pw/AP1GczNCCYjaUNnJYyV7asxyJVFHTKV2MFv3gaC75n34QK94RVuS_F8tq4aZaOS-FaweqYUxkEzHVO1yVVUYWdXOoh23XDLeuB36hqL4hrA-NSgvWiB8OpBxX4HWKUl53zEtkXWj1xaW8CJpHxptXAfFs1PAYw=w1764-h1323-s-no-gm?authuser=0)
 
 ## Gori og Stalin-museet
 
@@ -60,7 +62,7 @@ Vi bomma litt på museumsbesøket vårt, da vi gikk aleine rundt. Vi burde hatt 
 
 Museet har fått kritikk for å glorifisere Stalin og rette lite fokus på at hans forbrytelser mot menneskeheten. En stor statue av Stalin stod faktisk på rådhusplassen i byen fram til 2010, 2 år etter byen ble okkupert av russiske styrker i 12 dager.
 
-![Meg og togvogna til Stalin](https://lh3.googleusercontent.com/pw/AP1GczP68R-kz7uMKv1IBHFn3y0VPqg28-xW4ucja0AbdeIc1HZJ1bVWWW65un7noHH1iND2cWcR3GAr4YS7vrEqQlZQ09BbQU-c8_kWLj3kW9-dXGCZOKZuPIqHsOQbaY5TZy-wLWBCYNbRgpzJlaC35Qyxwg=w992-h1323-s-no-gm?authuser=0)
+![Meg og togvogna til Stalin](https://lh3.googleusercontent.com/pw/AP1GczP_LgE-rm3DkK6iUgWtVQoNEMFNs5xxbOvyk784B3zd45WirDrA2zviYBey9iIuQwwPBv-gKN9D1MdiSynUwt2EWuiOYIZLaoFAIonOZtbhzvOWULdkVhpUSTRj156ITpxUWFjQv34BLWwbZjRBKcPhBQ=w1296-h1323-s-no-gm?authuser=0)
 
 ## Kutaisi
 
@@ -73,3 +75,5 @@ Etter museumsbesøket kjørte vi videre til Kutaisi, en by et par timer lenger v
 Vi gikk innom litt forskjellige vinbarer og sportsbarer. På den ene vinbaren bodde det en ung kattemor med sine tre små kattunger, som var et hyggelig selskap.
 
 ![Vinbar i Kutaisi](https://lh3.googleusercontent.com/pw/AP1GczPHgYEA126BYT-xAVlNe2vb6XwE1WvU60iUBxp57RpAgMcxYXh0ssGtInoMOKDAXNcOODAGf7au8cWwtq-ghFcPH-1YhGj223s9dvc8jRbVB-Mtz5K1uegq7yv7HcV7wXpGIxyJ4PQGmSvOdb82_s5aVw=w1323-h1323-s-no-gm?authuser=0)
+
+![Sportsbar i Kutaisi](https://lh3.googleusercontent.com/pw/AP1GczNmkAbx9Dmx-eskm_6WNpA6LONewmx98via1Rb4U_q0FGadgup1UNFjp-_mLhZNjOdVcFwMJ7WZ9f5sFc5T2rZF9Sekm4adgXkAECP1IfXqZjE8pf6Xa_JM_FS6hJPAIFMrHxk-m05UQPjgcRb_4RaAZg=w1323-h1323-s-no-gm?authuser=0)
