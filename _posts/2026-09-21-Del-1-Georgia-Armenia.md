@@ -2,7 +2,7 @@
 layout: post-nav
 title: "Del 1: Armenia og én dag i Georgia"
 date: 2026-09-21
-next_post_url: "2026/09/21/Del-2-Georgia-Armenia.html"
+next_post_url: "2026/09/21/Del-2-Georgia.html"
 next_post_title: "Del 2: Vin og ekstremvær"
 ---
 

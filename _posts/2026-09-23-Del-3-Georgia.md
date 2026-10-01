@@ -2,7 +2,7 @@
 layout: post-nav
 title: "Del 3: Kaukasus og fjellet Kazbek"
 date: 2026-09-23
-next_post_url: "2026/09/29/Del-4-Georgia-Armenia.html"
+next_post_url: "2026/09/29/Del-4-Georgia.html"
 next_post_title: "Del 4: Tbilisi, Gori og Kutaisi"
 ---
 

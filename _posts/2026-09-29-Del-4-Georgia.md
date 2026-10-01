@@ -2,7 +2,7 @@
 layout: post-nav
 title: "Del 4: Tbilisi, Gori og Kutaisi"
 date: 2026-09-29
-next_post_url: "2026/10/01/Del-5-Georgia-Armenia.html"
+next_post_url: "2026/10/01/Del-5-Georgia.html"
 next_post_title: "Del 5: Kaukasus - Svaneti og Mestia"
 ---
 

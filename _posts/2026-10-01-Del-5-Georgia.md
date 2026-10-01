@@ -2,6 +2,8 @@
 layout: post-nav
 title: "Del 5: Kaukasus - Svaneti og Mestia"
 date: 2026-10-01
+next_post_url: "2026/10/01/Del-6-Georgia.html"
+next_post_title: "Del 6: Svartehavet og Tbilisi igjen"
 ---
 
 <style>
