@@ -30,7 +30,7 @@ td img {
 
 ## Svartehavet
 
-Vi hadde bestemt oss lenge før vi dro for å finne tid til en dag på stranda denne ferien. Det endte opp med å bli den tredje siste dagen før hjemreise og vi la inn en dag her. Vi sjekka inn på et hotell ca midt mellom byene Poti og Batumi. Hotellet lå på stranda og vi var framme her ca klokka 14. Vi lå 4 timer på noen strandstoler under en parasoll og leste bøker og bada og drakk pils fra hotellbaren.
+Vi hadde bestemt oss lenge før vi dro for å finne tid til en dag på stranda denne ferien. Det endte opp med å bli den tredje siste dagen før hjemreise og vi endte til slutt på i underkant av én dag til dette. Vi sjekka inn på et hotell ca midt mellom byene Poti og Batumi. Hotellet lå på stranda og vi var framme her ca klokka 14. Vi lå 4 timer på noen strandstoler under en parasoll og leste bøker og bada og drakk pils fra hotellbaren.
 
 Jeg leste ferdig med boka jeg fikk låne før ferien, Det åttende livet (til Brilka), skrevet av Nino Haratischwili. Terningkast 6 på denne boka som over sine 1100 sider tar deg gjennom Georgia fra starten av 1900-tallet og til i dag, fortalt gjennom en families historie og øyne.
 
