@@ -52,15 +52,15 @@ Dagen etter fikk vi høre fra resepsonisten at det var store skader på bygg og 
 
 Dette var vår siste dag i landet, vi hadde ikke veldig mye planer annet enn å oppleve byen. Vi hadde notert oss et vinmuseum i nærheten og en fotballstadion. Vinmuseet var dessverre stengt, til tross for at det stod at det var åpent både på nettidene deres, så turen gikk videre mot fotballstadion. Det var en ekstremt varm dag for oss som trives best når temperaturen er godt under 30, her var temperaturen rundt 35 grader, og vi hoppa på en turistbåt i elva for å få et lite avbrekk fra asfaltvarmen.
 
-![](https://lh3.googleusercontent.com/pw/AP1GczO5WsaH826T109U7uQzKu8gqn3BMmuePnAsfLdosq2tm5TCNZxCu6eV6fjnlZgK-zByPtroRyS0VzETgHovX6okUNRgBHBIp7x6m3UlYkAPdBSNMimcwzJ5NzHCle4hR8pg-x1kskN_Capgz2yxPJIsKw=w1722-h1724-s-no-gm?authuser=0)
+![Elva Kura gjennom Tbilisi](https://lh3.googleusercontent.com/pw/AP1GczO5WsaH826T109U7uQzKu8gqn3BMmuePnAsfLdosq2tm5TCNZxCu6eV6fjnlZgK-zByPtroRyS0VzETgHovX6okUNRgBHBIp7x6m3UlYkAPdBSNMimcwzJ5NzHCle4hR8pg-x1kskN_Capgz2yxPJIsKw=w1722-h1724-s-no-gm?authuser=0)
 
-Vi gikk en tur gjennom området hvor Tbilisis sine historiske svovelbad ligger. De varme kildene badene er bygd rundt stammer fra 400-tallet og byen fikk visstnok navnet Tbilisi, som betyr "varm" på grunn av disse kildene. Badene er fortsatt operative, men det frista oss lite og vi var fornøyde med å bare traske innover elva som renner forbi.
+Vi gikk en tur gjennom området hvor Tbilisi sine historiske svovelbad ligger. De varme kildene som badene er bygd rundt stammer fra 400-tallet og byen fikk visstnok navnet Tbilisi, som betyr "varm" på grunn av disse kildene. Badene er fortsatt operative, men det frista oss lite og vi var fornøyde med å bare traske innover elva som renner forbi.
 
 ![Svovelbadene](https://lh3.googleusercontent.com/pw/AP1GczM9D2nOxXpkoFnK9X6_IK8D5_9_fE3sKvyh1QmLSOdnjaYsOT6k_mX0PS0yjgC4ZrPeLBT5w08PyAuiNX0keFSpcZi7yrGUfB8eFxsmT6_Ps0Czr4hfpbRq8p8F5mO0ykHcJK8LF5f-lY4GXcG5r8nabg=w1722-h1724-s-no-gm?authuser=0)
 
 Vi så også statuen Kartlis Deda, Mother of Georgia, en statue som står på en høyde over byen og symboliserer georgias karakter. Hun holder en bolle med vin i den venstre hånda, til de som kommer som venner, og i høyre hånd et sverd, til de som kommer som fiender.
 
-![Mother of Georgia](https://lh3.googleusercontent.com/pw/AP1GczNTg2hf0FYDQSm9JZ4XYdiayQVH3ViLHMqdMQa_RPZxCKsWsQZiqF51_YfMboFOKvTiEfaZT5zPLPFBmT8COwDFkmzKbNLh5qtFRmUIAIu0-pU1vwGmvRGDAWajonTYmuIH-sBYYvp5DmF8zCLOsr0bQA=w2298-h1724-s-no-gm?authuser=0)
+![Mother of Georgia](https://lh3.googleusercontent.com/pw/AP1GczOtG699S9G98isd06ZygyUVCLgnGRuVea8ERgYmSuI7j787rwZkM44gnAH5AOA5JFu-m1xgub6EEdYkleW3nmp9Kb9_0jrrIYyOr3bFDeBsoICUUYRvbUYJNJ9BYBM2GfkuKysGnfxPLoh10nZV2f9_JA=w1536-h1229-s-no-gm?authuser=0)
 
 Etterpå dro vi til Boris Paichadze Dinamo Arena. Det spiltes ingen fotballkamper her i sommer pga oppgradering av gressmatta, men vi ønska å se den allikevel. Det er Georgias største stadion, med en kapasitet på 54 139 tilskuere. Navnet ble endra fra navnet til en russisk kommunistleder til å bruke navnet til en kjent georgisk fotballspiller i 1995. Stadion har en blanding av en ganske brutal arkitektur (se tribunetrappene) og utsmykkede stolper og gjerder. Den var naturlig nok ikke åpen for å gå inn på, men vi tok en runde rundt og kunne et par steder gå opp en trapp for å titte inn portene. Vi håper vi får sett en kamp her ved neste besøk.
 
@@ -71,3 +71,5 @@ Etterpå dro vi til Boris Paichadze Dinamo Arena. Det spiltes ingen fotballkampe
 ![Grafiti, blant annet flaggene til Georgia, EU, Nato, tekstene "We are Europe" og "Long live Georgia!"](https://lh3.googleusercontent.com/pw/AP1GczOJQJeTsUFw5gJc610Nw6rv8sMSI8KTFCwjcPuonJxd_yItqzcD5T1adH9jEwncWjvuRhtEux5oU9U1TGD2DZUMDf1KxfZKALMUc9IDEx-vPzthEyQppLrIp3gs9VaUte1CxSTL8WK37WMi8F87XYJMmg=w2298-h1724-s-no-gm?authuser=0)
 
 Vi traska herfra videre til et bakeri og en restaurant som morsomt nok het BRØD. Her nøt vi turens siste khachapuri, her lagd med butterdeig. Det ble et glass vin og litt mer byvandring, før vi henta bagasjen vår og tok en bolt ut til flyplasshotellet. Flyet gikk klokka 5 på natta, vi hadde samme rute via Munchen hjem igjen.
+
+![Khachapuri](https://lh3.googleusercontent.com/pw/AP1GczMnOM5HamFRiCkMNysPnDH5E6pBEPE_g2LIc8bIOjss6gWbZ1f2-PEcpLS8txEjhuInqboECGkC5mhKB4LQ9P-GBzknrtkdvjGuFOsA6HX_NmmuQcCjUMvnvruILkpBUIK9qjSjsLRUdVqEXanfN7bc_A=w1726-h1724-s-no-gm?authuser=0)
