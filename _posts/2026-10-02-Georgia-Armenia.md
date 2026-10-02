@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Samlepost - Ferie i Georgia"
+title: "Samlepost - Ferie i Georgia og Armenia"
 date: 2026-10-02
 ---
 
