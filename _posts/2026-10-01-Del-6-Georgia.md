@@ -64,9 +64,7 @@ Vi så også statuen Kartlis Deda, Mother of Georgia, en statue som står på en
 
 Etterpå dro vi til Boris Paichadze Dinamo Arena. Det spiltes ingen fotballkamper her i sommer pga oppgradering av gressmatta, men vi ønska å se den allikevel. Det er Georgias største stadion, med en kapasitet på 54 139 tilskuere. Navnet ble endra fra navnet til en russisk kommunistleder til å bruke navnet til en kjent georgisk fotballspiller i 1995. Stadion har en blanding av en ganske brutal arkitektur (se tribunetrappene) og utsmykkede stolper og gjerder. Den var naturlig nok ikke åpen for å gå inn på, men vi tok en runde rundt og kunne et par steder gå opp en trapp for å titte inn portene. Vi håper vi får sett en kamp her ved neste besøk.
 
-![Meg som titter opp på undersida av tribunetrappene](https://lh3.googleusercontent.com/pw/AP1GczPhn9E6I5NUNwH4WM3w6EuNJhtCZJndH0yqemZzNRqLRxssvnRPbIkxAlqiIKVDNs-EiuMJaAVngDwIxcNrW0fYyD8-qRo5QFIAD-ABvqoRstOUUslvj3fOZao89Da0KovQN5d4LN6S-cMqCv2gQBkv3w=w1294-h1724-s-no-gm?authuser=0)
-
-![Innsiden av stadion sett gjennom et gjerde](https://photos.fife.usercontent.google.com/pw/AP1GczN_u0OZOsUeUN1-fJnSYSSCEJjXtWoIcAEtvBPLZmdufFgs41-X8i--2w=w1294-h1724-s-no-gm?authuser=0)
+| ![Meg som titter opp på undersida av tribunetrappene](https://lh3.googleusercontent.com/pw/AP1GczPhn9E6I5NUNwH4WM3w6EuNJhtCZJndH0yqemZzNRqLRxssvnRPbIkxAlqiIKVDNs-EiuMJaAVngDwIxcNrW0fYyD8-qRo5QFIAD-ABvqoRstOUUslvj3fOZao89Da0KovQN5d4LN6S-cMqCv2gQBkv3w=w1294-h1724-s-no-gm?authuser=0) | ![Innsiden av stadion sett gjennom et gjerde](https://lh3.googleusercontent.com/pw/AP1GczMSwiLLyajccIqCW6fJ7uTC7DsA5KKU8uHfMxUW71gxCaX9BYFwbnQI8g2VN5mMy4tx0j76mUHDAjxU4h3h67Juh4hpeY_diH7av1BsNvZsS2nHAS1uNK9WnVQ3E-8CoLSzBBttbQgSeTUUdsaUhutA_A=w1294-h1724-s-no-gm?authuser=0) |
 
 ![Grafiti, blant annet flaggene til Georgia, EU, Nato, tekstene "We are Europe" og "Long live Georgia!"](https://lh3.googleusercontent.com/pw/AP1GczOJQJeTsUFw5gJc610Nw6rv8sMSI8KTFCwjcPuonJxd_yItqzcD5T1adH9jEwncWjvuRhtEux5oU9U1TGD2DZUMDf1KxfZKALMUc9IDEx-vPzthEyQppLrIp3gs9VaUte1CxSTL8WK37WMi8F87XYJMmg=w2298-h1724-s-no-gm?authuser=0)
 
